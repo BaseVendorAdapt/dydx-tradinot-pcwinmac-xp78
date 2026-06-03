@@ -1,4 +1,4 @@
-# 
+# Élite dydx trading bot flujo de trabajo para Mac OS | Inteligente dydx trading bot flujo de trabajo para PC Windows. Con ejecución de alta frecuencia y estrategia de reversión a la media — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
